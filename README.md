@@ -1,1 +1,1 @@
-Jeremiah Barro
+Jeremiah Barro barroj@oregonstate.edu
